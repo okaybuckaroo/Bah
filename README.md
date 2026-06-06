@@ -1,2 +1,2 @@
-# Bah
-Hi my name is
+ABSOLUTE DORK!
+Hi my name is Adam and I'm into drawing, animating, and making puppets. i am on the spectrum so understand that I may sound too serious, or rude at times, and I do tend to talk a lot about puppets, more specifically my special interests on Sesame Street, The Muppets, ThreadVille, Welcome Home, Bear in the Big Blue House, and more. I think I'm pretty funny once you know me well, and I don't judge really anybody at all.
